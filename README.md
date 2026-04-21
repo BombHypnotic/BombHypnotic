@@ -3,7 +3,7 @@ hey im **xkats / X or Xkatszuki or if you know me by soemthing else that too**
 **he/him/his** only please thanks. and **i might be agressive if pissed off.** dont take personally
 ___
 
-this is the only response we all will be doing. do not except another.
+this is the only response we all will be doing. do not expect another.
 
 https://docs.google.com/document/d/14GwxPwvvANlIRNBQA_35w__Hy4_unGkLz0Klpt_ONCA/edit?usp=sharing
 ___
