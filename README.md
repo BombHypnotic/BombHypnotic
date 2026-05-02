@@ -1,4 +1,4 @@
-`*my name is **Dom** but close people can call me **Dominic***`
+*my name is **Dom** but close people can call me **Dominic***
 
 `mainly he/him/his - transmasc and openly a chubby person ♡`
 
