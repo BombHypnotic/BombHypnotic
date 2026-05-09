@@ -11,3 +11,4 @@ ___
 i believe in all ages should take accountablitiy not just always minors being the victim or the newlt adults bring the abusers, like accountablitiy please bro grow up
 ___
 ![](https://files.catbox.moe/065f1x.png)
+- art from pinterest /  artist @_elehose
