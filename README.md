@@ -8,7 +8,8 @@ ___
 - ⭐️ Mainly on *`Ponytown (in mha/hazbin/or running around)`*
 - or *`Discord = HypnoticBomb`*
 ___
-i believe in all ages should take accountablitiy not just always minors being the victim or the newlt adults bring the abusers, like accountablitiy please bro grow up
+**i believe in all ages should take accountablitiy no matter what age range you are.
+example: `minor ≠ not always victim / adult ≠ not always the abuser`**
 ___
 ![](https://files.catbox.moe/065f1x.png)
-- art from pinterest /  artist @_elehose
+- `art from pinterest /  artist @_elehose`
