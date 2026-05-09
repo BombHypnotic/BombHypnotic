@@ -1,4 +1,4 @@
-hello my name changes a lo depending on my mood/identity okok 
+hii my name changes a lo depending on my mood/identity okok 
 
 ___
-![](https://files.catbox.moe/lv2oji.jpeg)
+![](https://files.catbox.moe/065f1x.png)
