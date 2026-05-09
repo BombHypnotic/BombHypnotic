@@ -1,4 +1,4 @@
-- Name(s) : Dominic / Dom - Mal - Choso / Kamo
+- Name(s) : Dominic / Dom - Choso / Kamo
 
 - Pronoun(s) : he/him/his -
 
