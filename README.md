@@ -1,14 +1,13 @@
-- Name(s) : Dominic / Dom - Choso / Kamo
-
-- Pronoun(s) : he/him/his -
-
-- Age : 16(sixteen)
+   ___Ashley , Dom___ ♰     she/he/it      
+    =INFP-T=   🌙   16 artist + writed  　
+  
+  “ it aint worth it if it effects you ”
 ___
 
 - ⭐️ Mainly on *`Ponytown (in mha/hazbin/or running around)`*
 - or *`Discord = HypnoticBomb`*
 ___
-**i believe : `minor ≠ not always victim / adult ≠ not always the problematic`**
+**i believe : `minors ≠ arent always victim / adult ≠ arent always the problematic`**
 ___
-![](https://files.catbox.moe/065f1x.png)
-- `art from pinterest /  artist @_elehose`
+![](https://files.catbox.moe/f7qkbj.jpg)
+- `art from pinterest`
