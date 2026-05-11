@@ -1,10 +1,10 @@
-   ___Ashley , Dom___ ♰     she/he/it      
-    =INFP-T=   🌙   16 artist + writed  　
+   @____Ashley , Dom___ ♰     she/he/it      
+    =INFP-T=   🌙   ____16 , artist + writed____  　
   
-  “ it aint worth it if it effects you ”
+  `“ it aint worth it if it effects you ”`
 ___
 
-- ⭐️ Mainly on *`Ponytown (in mha/hazbin/or running around)`*
+- ⭐️ Mainly on *`Ponytown (in sonic/RE/DCU/MCU areas or island)`*
 - or *`Discord = HypnoticBomb`*
 ___
 **i believe : `minors ≠ arent always victim / adult ≠ arent always the problematic`**
